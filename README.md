@@ -1,6 +1,6 @@
 <h2>5 Mile an Hour Signs: Your Go-To Source for High-Quality Speed Limit Signage at the Best Prices</h2>
 
-Businesses, warehouses, and private property owners looking for <strong>5mph speed limit signs</strong> now have a dedicated resource in <strong>5 Mile an Hour Signs</strong>, the premier provider of high-quality, affordable speed signage in the UK. The company not only creates durable, professional-grade signs but also helps customers find the best deals available.</p>
+Businesses, warehouses, and private property owners looking for <ahref="https://5mileanhoursigns.co.uk/"><strong>5mph speed limit signs</strong></a> now have a dedicated resource in <strong>5 Mile an Hour Signs</strong>, the premier provider of high-quality, affordable speed signage in the UK. The company not only creates durable, professional-grade signs but also helps customers find the best deals available.</p>
 
 <h3>Ensuring Safety with the Right Speed Signage</h3>
 
@@ -23,15 +23,6 @@ Businesses, warehouses, and private property owners looking for <strong>5mph spe
 <h3>Order Your Speed Limit Signs Today</h3>
 
 <p>To browse available speed limit signs, request a custom design, or find the best deal for your business or property, visit <a href="http://www.5mileanhoursigns.co.uk">www.5mileanhoursigns.co.uk</a>.</p>
-
-<h3>For media inquiries, partnership opportunities, or more information, please contact:</h3>
-<p>
-    <strong>[Your Name]</strong><br>
-    [Your Position]<br>
-    <strong>5 Mile an Hour Signs</strong><br>
-    [Your Email]<br>
-    [Your Phone Number]<br>
-</p>
 
 <hr>
 
